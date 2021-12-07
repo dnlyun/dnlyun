@@ -1,5 +1,13 @@
 ### Hi there 👋, I'm Daniel!
 
+I'm currently looking for internships starting winter of 2023. Free feel to send me a message on [LinkedIn](https://www.linkedin.com/in/dnlyun/) or [send me an email](mailto:s.danielyun@outlook.com)!
+
+- 🔭 Incoming at Qualcomm
+- 🌱 I’m currently learning how to play chess
+- 💬 Ask me about my favourite films
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Top 2% in Brawlhalla 😎
+
 <!--
 **dnlyun/dnlyun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
