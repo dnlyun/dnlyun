@@ -1,8 +1,8 @@
 ### Hi there 👋, I'm Daniel!
 
-I'm currently looking for internships starting winter of 2023. Free feel to send me a message on [LinkedIn](https://www.linkedin.com/in/dnlyun/) or [send me an email](mailto:s.danielyun@outlook.com)!
+I'm currently looking for internships starting winter or summer of 2023. Free feel to send me a message on [LinkedIn](https://www.linkedin.com/in/dnlyun/) or [send me an email](mailto:s.danielyun@outlook.com)!
 
-- 🔭 Incoming at Qualcomm
+- 🔭 Prev intern @ Qualcomm
 - 🌱 I’m currently learning how to play chess
 - 💬 Ask me about my favourite films
 - 😄 Pronouns: He/Him
