@@ -1,6 +1,6 @@
 ### Hi there 👋, I'm Daniel!
 
-I'm currently looking for new grad 2024. Free feel to send me a message on [LinkedIn](https://www.linkedin.com/in/dnlyun/) or [send me an email](mailto:s.danielyun@outlook.com)!
+I'm currently looking for new grad 2024. Free feel to send me a message on [LinkedIn](https://www.linkedin.com/in/dnlyun/) or [send me an email](mailto:dnlyun@outlook.com)!
 
 - 🔭 Prev intern @ Tesla, Qualcomm
 - 🌱 I’m currently learning how to play chess
