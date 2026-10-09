@@ -6,7 +6,7 @@ I'm currently looking for new grad 2024. Free feel to send me a message on [Link
 - 🌱 I’m currently learning how to play chess
 - 💬 Ask me about my favourite films
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Top 2% in Brawlhalla 😎
+- ⚡ Fun fact: Top 100 in Brawlhalla US-E 😎
 
 <!--
 **dnlyun/dnlyun** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
